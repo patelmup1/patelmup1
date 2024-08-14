@@ -1,5 +1,5 @@
 # 💫 About Me: Meet Patel
-🔭I'm currently studying at GPH<br>🎥I'm currently working on content creation and ShareX<br>💬 Ask me about anything I will ask to AI<br>⚡fun fact : you are a developer 
+🔭I'm currently studying at SPCE<br>🎥I'm currently working on content creation and ShareX<br>💬 Ask me about anything I will ask to AI<br>⚡fun fact : you are a developer 
 
 
 ## 🌐 Socials:
